@@ -1,1 +1,0 @@
-# prithviraj2510talks
